@@ -1,0 +1,5 @@
+- 👋 Me is: @BlurzyBord
+- 👀 Me interested in: ur father
+- 🌱 Me currently learning: how to do ur father
+- 💞️ Me looking to collaborate on: doing ur father
+- 📫 How to reach me: talk to ur father
